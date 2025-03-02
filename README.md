@@ -1,0 +1,1 @@
+# kurdish_o_c_r
